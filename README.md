@@ -4,7 +4,6 @@ My name is Aritra. I am a graduate student at the University of South Alabama. I
 
 I look forward to learning and collaborating with people on open-source projects.
 
-Aritra 
-aritrabhadra@icloud.com
+You can contact me here at aritrabhadra@icloud.com
 
 
